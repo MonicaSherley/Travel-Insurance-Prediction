@@ -1,0 +1,2 @@
+Insurance is a way to manage your risk. When you buy insurance, you purchase protection against unexpected financial losses. Many types of insurance exist today and there are so many companies that offer insurance services. 
+Travel Insurance is a type of insurance that covers different risks while travelling, with the increasing number of critical events happening at tourism destinations, travellers engage in different strategies to reduce travel risks, and travel insurance purchase is one of these
